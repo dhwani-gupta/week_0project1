@@ -1,1 +1,1 @@
-take it easy people
+TAKE IT EASY PEOPLE
